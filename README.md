@@ -1,6 +1,6 @@
 # Narcissistic
 
-Disclaimer: The views expressed here are solely those of the author in his private capacity and do not in any way represent the views of the Department of State, or any other entity of the U.S. Government. It should be quite obvious that the Department of State has not approved, endorsed, embraced, friended, liked, tweeted or authorized this post.
+
 
 I will be sharing a brief overview of the federal crimes that have been looked over due to an unfair lack of representation.
 
@@ -11,5 +11,7 @@ If you check out the repository "Statuates and Legal Proceedings", we have made 
 In the "DIRT" repository, you will find the many unusualy inhumane ways that we have ignored Kyle Butler's request to see or be a part of his sons life. There is also plenty of images from the messages that Liam's mother has sent him, because she can't come clean and take accountability for her secrets.
 
 In the "Pictures" directory- we have posted the pictures that Kyle has with his son. It demonstrates the time and love that they shared with eachother. 
+
+### Disclaimer: The views expressed here are solely those of the author in his private capacity and do not in any way represent the views of BRUCE MCCLUGGAGE, his family, the Department of State, or any other entity of the U.S. Government. It should be quite obvious that the Department of State has not approved, endorsed, embraced, friended, liked, tweeted or authorized this post.
 
 
