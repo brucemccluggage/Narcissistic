@@ -1,5 +1,7 @@
 # Narcissistic
 
+Disclaimer: The views expressed here are solely those of the author in his private capacity and do not in any way represent the views of the Department of State, or any other entity of the U.S. Government. It should be quite obvious that the Department of State has not approved, endorsed, embraced, friended, liked, tweeted or authorized this post.
+
 I will be sharing a brief overview of the federal crimes that have been looked over due to an unfair lack of representation.
 
 This repository contains the many text messages that Kyle Butler sends begging to see his child, Liam Butler. The McCluggage family has denied him to have a voice and we love to watch him lose his mind because we wan't to relace him. It is also known that if his son were to go with him, the "secrets" would be exposed, and they would be found guilty on several different levels. But whoops... the secrets already out.
